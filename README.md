@@ -1,2 +1,15 @@
 # Dragon-Ball-Z
 Breve Historia sobre la serie animada de Dragon Ball z.
+
+## Resumen de la historia.
+Es una de las historias mas icónicas de todos los tiempos con una repercución tanto en el continente asiatico donde fue creada y igual de influyente en el continente americano y todo centroamerica, su creador es  Akira Toriyama y producida por Toei Animation. Esta serie se basa en las aventuras de Goku que es el personaje principal de esta franquisia donde tiene aventuras con sus amigos mientras luchan por proteger la Tierra de amenazas extraterrestres cada vez más peligrosas
+
+Esta famosa serie se trasmitió por primera ves en el año de 1989 en Japón y concluyó en 1996. La serie ha sido un éxito internacional desde entonces y se ha convertido en una de las series de anime más populares de todos los tiempos. Desde entonces se han creado remasters de la serie para que se siga viendo con graficos actualizados ya que a lo largo de los años con las nuevas tecnologías y mejores pantallas para ser reprodicidos los capitulos de esta serie animada. Cada temporada de esta serie consta de una enemigo que amenaza la raza humana y Goku junto con sus amigos tienen que salvar a la humanidad cion sus increibles poderes de pelea. 
+
+ La saga de los Saiyajin es la primera de la serie, y presenta a Goku y sus amigos enfrentándose a los Saiyajin, una raza alienígena de guerreros. En esta saga, Goku descubre que él mismo es un Saiyajin y que su verdadero nombre es Kakarotto. El antagonista de esta temporada es Vegetta, quien se puede convertir en un Gorilla gigante con mucho poder y amenaza con destruir la tierra. En esta saga Goku se entera de su origen verdadero origen que es el planeta Vegitta y que Vegetta es su hermano. Desde esta temporada Vegetta se queda para intentar derrotar a Goku en reiteradas ocaciones entonces se queda a vivir en el planeta tierra. 
+ 
+  La saga de Freezer es la segunda de la serie y es considerada una de las más icónicas de Dragon Ball Z. En esta saga, Goku y sus amigos viajan al planeta Namek en busca de las míticas Esferas del Dragón. Una vez allí, se enfrentan al malvado Freezer y su ejército en una épica batalla que cambia el curso de la serie. Freezer es uno de los personajes mas malvados de toda la serie ya que se evidencia su deseo por la vida eterna. El nivel de pelea de Freezer uno de los mas grandes que se habian visto hasta el momento por eso fue una batalla épica la que se llevó a cabo en el planeta Namek. 
+  
+  La saga de Cell es la tercera de la serie y presenta al androide Cell, un enemigo poderoso creado por el científico loco Dr. Gero. En esta saga, los personajes deben enfrentarse a Cell y sus poderosos aliados para proteger la Tierra. Se puede destacar que en esta saga se descubre la importancia de algunos personajes secundarios como el de Gohan ya que se descubre que es un gran peleador con un poder oculto que ayuda a derrotar al malvado Cell. Tambien se dan a conocer algunos personajes nuevos tales como los androides y el hijo de Vegetta. 
+  
+  
