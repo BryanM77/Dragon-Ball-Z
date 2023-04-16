@@ -40,4 +40,5 @@ Estos son solo algunos ejemplos de los muchos juegos de Dragon Ball Z que existe
 ### Personajes principales 
 
 - Goku
-- 
+
+![IMAGEN](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.alamy.es%2Fimagenes%2Fdragon-ball-z-goku.html%3Fcutout%3D1&psig=AOvVaw2FT3USkYr1-mT0VlJQcJpI&ust=1681772985686000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCND_0d_Cr_4CFQAAAAAdAAAAABAE)
