@@ -41,4 +41,25 @@ Estos son solo algunos ejemplos de los muchos juegos de Dragon Ball Z que existe
 
 - Goku
 
-![IMAGEN](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.alamy.es%2Fimagenes%2Fdragon-ball-z-goku.html%3Fcutout%3D1&psig=AOvVaw2FT3USkYr1-mT0VlJQcJpI&ust=1681772985686000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCND_0d_Cr_4CFQAAAAAdAAAAABAE)
+<img src="https://c8.alamy.com/compes/2jk9tfe/goku-television-dragon-ball-z-serie-de-tv-personajes-goku-jp-1996-2003-director-13-de-septiembre-de-1996-advertencia-esta-fotografia-es-para-uso-editorial-y-es-propiedad-de-toei-animation-y-o-del-fotografo-asignado-por-la-film-o-production-company-y-solo-puede-ser-reproducida-por-publicaciones-en-conjuncion-con-la-promocion-de-la-pelicula-anterior-se-requiere-un-credito-obligatorio-para-la-animacion-de-toei-el-fotografo-tambien-debe-ser-acreditado-cuando-se-conoce-no-se-puede-conceder-ningun-uso-comercial-sin-la-autorizacion-escrita-de-la-film-company-2jk9tfe.jpg" width="100">
+
+Crédito: Alamy Stock Photo
+
+- Vegeta
+
+<img src="https://c8.alamy.com/compes/2jk9tjn/television-vegeta-dragon-ball-z-serie-de-tv-jp-1996-2003-13-de-septiembre-de-1996-advertencia-esta-fotografia-es-solo-para-uso-editorial-y-es-propiedad-de-la-animacion-de-toei-y-o-del-fotografo-asignado-por-la-film-o-production-company-y-solo-puede-ser-reproducida-por-publicaciones-en-conjuncion-con-la-promocion-de-la-pelicula-anterior-se-requiere-un-credito-obligatorio-para-la-animacion-de-toei-el-fotografo-tambien-debe-ser-acreditado-cuando-se-conoce-no-se-puede-conceder-ningun-uso-comercial-sin-la-autorizacion-escrita-de-la-film-company-2jk9tjn.jpg" width="100">
+
+crédito a Alamy Stock Photo
+
+- Gohan 
+
+<img src="https://c8.alamy.com/compes/2jk9tg9/gohan-television-dragon-ball-z-serie-de-tv-personajes-gohan-jp-1996-2003-13-de-septiembre-de-1996-advertencia-esta-fotografia-es-solo-para-uso-editorial-y-es-propiedad-de-toei-animation-y-o-del-fotografo-asignado-por-la-film-o-production-company-y-solo-puede-ser-reproducida-por-publicaciones-en-conjuncion-con-la-promocion-de-la-pelicula-anterior-se-requiere-un-credito-obligatorio-para-la-animacion-de-toei-el-fotografo-tambien-debe-ser-acreditado-cuando-se-conoce-no-se-puede-conceder-ningun-uso-comercial-sin-la-autorizacion-escrita-de-la-film-company-2jk9tg9.jpg" width="100">
+
+Crédito: Alamy Stock Photo
+
+-Piccolo 
+
+<img src="https://c8.alamy.com/compes/2jhkk4f/piccolo-dragon-ball-z-1996-2jhkk4f.jpg" width="100">
+
+Crédito: Alamy Stock Photo
+
