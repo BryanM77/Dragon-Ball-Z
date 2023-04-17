@@ -66,3 +66,10 @@ Crédito: Alamy Stock Photo
 ***Sitio web oficial de Dragon Ball z***
 
 [<img src="https://upload.wikimedia.org/wikipedia/commons/c/ce/Logo_Dragon_Ball_Z.jpg">](https://es.dragon-ball-official.com/)
+
+Creditos de imagen a Josue Armenta. 
+
+***Serie Dragon Ball Z***
+
+[<img src="https://i.pinimg.com/550x/42/d7/0b/42d70b675238280f41abca52be38934b.jpg">]([https://es.dragon-ball-official.com/](https://www.justwatch.com/mx/serie/dragon-ball-z))
+
