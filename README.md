@@ -73,3 +73,4 @@ Creditos de imagen a Josue Armenta.
 
 [<img src="https://i.pinimg.com/550x/42/d7/0b/42d70b675238280f41abca52be38934b.jpg">](https://www.justwatch.com/mx/serie/dragon-ball-z)
 
+##Creado por Bryan Murcia Barboza
